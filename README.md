@@ -1,4 +1,4 @@
-# AGPPI Presentation Excellence
+# Presentation Excellence
 
 Unlock the zenith of presentation excellence with our meticulously curated PowerPoint presentation, tailor-made for both competitive events and institute showcases at the Polytechnic level. Immerse your audience in a dynamic and engaging PPT that seamlessly blends professionalism with creative flair.
 
